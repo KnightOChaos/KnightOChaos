@@ -18,4 +18,4 @@ Here are some ideas to get you started:
  
  The only time i will make a repository is when something is blocked at my school and i am sure i will be able to recreate it. 
  
- Pronouns: he/him
+ Other Account: https://github.com/hackingschoolwebsites
